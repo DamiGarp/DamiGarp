@@ -1,4 +1,4 @@
-# 💫 About Me:
+
 ## Yo, Im dami <br><br>🧠 A highschool student hoping to break out in finance.<br/><br>💻 Computer Programer (Python, Html). <br/><br>📊 I Like Graphed data. <br/><br>🤝 [My Instragram] 
 
 
